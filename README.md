@@ -1,1 +1,0 @@
-# LD-Light-Detailing
